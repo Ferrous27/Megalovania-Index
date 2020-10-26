@@ -1,1 +1,2 @@
-Project Megalovania is working in progess
+Project Megalovania is coming soon...
+
